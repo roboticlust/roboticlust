@@ -1,5 +1,3 @@
-## Hi there 👋
-
 <!--
 **roboticlust/roboticlust** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
@@ -14,3 +12,10 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+
+### main
+-  c+h, w2i. do not copy, please! you may take light inspo.
+-  mainly off-tab
+
+[read pls](https://rentry.co/abtm-e)
