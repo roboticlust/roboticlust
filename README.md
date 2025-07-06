@@ -14,8 +14,8 @@ Here are some ideas to get you started:
 -->
 
 
-### main
--  c+h, w2i. do not copy, please! you may take light inspo.
--  mainly off-tab
 
-[read pls](https://rentry.co/abtm-e)
+# -  c+h, w2i. do not copy, please! you may take light inspo.
+# -  mainly off-tab
+
+# [read pls](https://rentry.co/abtm-e)
