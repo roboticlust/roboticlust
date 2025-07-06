@@ -13,8 +13,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-<p align="center"> sam, he/she pronouns
-<p align="center"> biggest 7n7/bm/1x fan
+<p align="center"> biggest 007n7, builderman, 1x, etc fan
 
 <p align="center"> c+h, w2i. do not copy, please! you may take light inspo.
 <p align="center"> mainly off-tab
