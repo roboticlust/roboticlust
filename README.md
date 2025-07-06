@@ -19,4 +19,4 @@ Here are some ideas to get you started:
 <p align="center"> c+h, w2i. do not copy, please! you may take light inspo.
 <p align="center"> mainly off-tab
 
-<p align="center"> [read pls](https://rentry.co/abtm-e)
+<p align="center"> https://rentry.co/abtm-e
