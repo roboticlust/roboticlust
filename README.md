@@ -13,9 +13,10 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-<p align="center"> biggest 007n7, builderman, 1x, etc fan
+![](https://files.catbox.moe/ru72kz.png)
 
-<p align="center"> c+h, w2i. do not copy, please! you may take light inspo.
-<p align="center"> mainly off-tab
+cudcomf, w2i. do not copy, please! you may take light inspo.
+
+basic dni - but adminvirus fans pls don't talk ab it around me ^^'
 
 <p align="center"> https://rentry.co/abtm-e
