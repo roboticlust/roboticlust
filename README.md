@@ -15,10 +15,10 @@ Here are some ideas to get you started:
 
 ![](https://files.catbox.moe/ru72kz.png)
 
-cudcomf (c+h heavily encouraged), w2i, and dnc! you may take light inspo though
+<p align="center"> cudcomf (c+h heavily encouraged), w2i, and dnc! you may take light inspo though
 
-basic dni - but adminvirus fans pls don't talk ab it around me ^^'
+<p align="center"> basic dni - but adminvirus fans pls don't talk ab it around me ^^'
 
-may hide you, i hide freely.
+<p align="center"> may hide you, i hide freely.
 
-ponytown account (obviously)
+<p align="center"> ponytown account (obviously)
