@@ -15,14 +15,13 @@ Here are some ideas to get you started:
 
 ![](https://files.catbox.moe/ru72kz.png)
 
-<p align="center"> cudcomf (c+h heavily encouraged), w2i, and dnc! you may take light inspo though
-
+<p align="center"> cudcomf (c+h heavily encouraged)
+<p align="center"> w2i, dnc. you may take light inspo
 <p align="center"> may hide you, i hide freely.
 
 ![](https://files.catbox.moe/mz1ekn.png)
 
 <p align="center"> basic dni - but adminvirus fans pls don't talk ab it around me ^^'
-
 <p align="center"> ponytown account (obviously)
 
 ![](https://files.catbox.moe/mz1ekn.png)
