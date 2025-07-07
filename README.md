@@ -21,7 +21,7 @@ Here are some ideas to get you started:
 
 ![](https://files.catbox.moe/mz1ekn.png)
 
-<p align="center"> [𝗯𝗮𝘀𝗶𝗰 𝗱𝗻𝗶](https://basic-dni.crd.co/)
+<p align="center"> https://basic-dni.crd.co/
 <p align="center"> 𝗮𝗱𝗺𝗶𝗻𝘃𝗶𝗿𝘂𝘀 𝗳𝗮𝗻𝘀 𝗽𝗹𝘀 𝗱𝗼𝗻'𝘁 𝘁𝗮𝗹𝗸 𝗮𝗯 𝗶𝘁 𝗮𝗿𝗼𝘂𝗻𝗱 𝗺𝗲
 <p align="center"> 𝗽𝗼𝗻𝘆𝘁𝗼𝘄𝗻 𝗮𝗰𝗰𝗼𝘂𝗻𝘁 (𝗼𝗯𝘃𝗶𝗼𝘂𝘀𝗹𝘆)
 
