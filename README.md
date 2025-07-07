@@ -13,8 +13,12 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-![https://rentry.co/abtm-e](https://files.catbox.moe/ru72kz.png)
+![](https://files.catbox.moe/ru72kz.png)
 
-cudcomf, w2i. do not copy, please! you may take light inspo.
+cudcomf (c+h heavily encouraged), w2i, and dnc! you may take light inspo though
 
 basic dni - but adminvirus fans pls don't talk ab it around me ^^'
+
+may hide you, i hide freely.
+
+ponytown account (obviously)
