@@ -13,10 +13,8 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-![](https://files.catbox.moe/ru72kz.png)
+![https://rentry.co/abtm-e](https://files.catbox.moe/ru72kz.png)
 
 cudcomf, w2i. do not copy, please! you may take light inspo.
 
 basic dni - but adminvirus fans pls don't talk ab it around me ^^'
-
-<p align="center"> https://rentry.co/abtm-e
