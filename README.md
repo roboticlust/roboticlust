@@ -17,7 +17,9 @@ Here are some ideas to get you started:
 ---
 <br></br>
 
-<p align="center"> <b>cudcomf (c+h encouraged)</b>
+<p align="center"> <b>ships DNIuf</b>
+ 
+<p align="center"> cudcomf (c+h encouraged)
 <p align="center"> <b>w2i</b>, dnc. you may take light inspo
 <p align="center"> i may hide you; i block freely
 <br><br><br></br>
